@@ -2,6 +2,6 @@
 
 
 📌 프로젝트 소개
-hr
+https://www.canva.com/design/DAGfmN0yu1s/Afg3KI9ifBNOuCgDAQ3E8A/edit?utm_content=DAGfmN0yu1s&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 
